@@ -15,11 +15,10 @@
 **Talking about Personal Stuffs:**
 
 - 🌐 [SilenceProjexts](https://t.me/SilenceProjexts)
-- 🎓 [Smk Pertiwi KNG](https://smkpertiwikng.sch.id/)
-- 📫 [Facebook](https://web.facebook.com/SepCanss) | [Instagram](https://www.instagram.com/asepmlnaa/) | [Telegram](https://t.me/RysepEchizen)
+- 🎓 [SMK Pertiwi KNG](https://smkpertiwikng.sch.id/)
+- 📫 [Facebook](https://web.facebook.com/SepCanss) | [Instagram](https://www.instagram.com/asepmlnaa/) | [Telegram](https://t.me/RysepEchizen) | [Youtube](https://youtube.com/AsepGsMtaa)
 - 🎼 [Nightcore, we can do this all night](https://www.youtube.com/watch?v=R7afKrt5RGU)
 - 🎮 [PointBlank](https://www.pointblank.id/)
-- 👨‍💼 [Youtube](https://youtube.com/AsepGsMtaa)
 - 🏆 Top Global Begal
 - 💻 Windows User
 - 🎉 Jun 04th, 2003
